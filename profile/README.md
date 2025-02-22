@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="o6uV1k_ZIRn8IOV9HUQdoGNbIPokS9Qz3BSMqQV7E8o" />
 # 🎮 GTA 6 Leaks – Beta Download, Insider News & Release Details
 
 🚀 **Welcome to GTA 6 Leaks!** Your ultimate source for the latest **Grand Theft Auto VI** updates, beta gameplay, and exclusive insider news. We cover every leak, trailer breakdown, and early-access detail, ensuring you stay ahead of the game!
